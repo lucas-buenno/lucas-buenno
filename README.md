@@ -10,7 +10,7 @@ I currently work as a Product Designer and I’m fully focused on becoming a Sof
 
 I’m fascinated about technology, high-impact products, and driven by curiosity. I’ve helped design solutions in the private pension, travel, and crypto industries. I hope to keep doing that, soon from a software engineer.
 
-Outside of work, I’m into everything football-related (especially jersey designs!), cold beers, and barbecue. I also enjoy playing video games, bar hopping, and trying new things now and then.
+Outside of work, I’m into everything football-related (especially jersey designs!), cold beers, and barbecue. I also enjoy playing video games(sometimes), bar hopping, and trying new things now and then.
 
 
 Let’s connect!
